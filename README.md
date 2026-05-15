@@ -256,7 +256,7 @@ CyberSec   ██░░░░░░░░░░░░░░░░░░  10%
 ╔══════════════════════════════════════════════════════╗
 ║  👤  Carlos André Oliveira Pereira                   ║
 ║  📧  carlos12andre13@gmail.com                       ║
-║  📱  +55 (32) 99100-4523                             ║
+║  📱  +55 32991547944                                 ║
 ║  🌐  terminal404.com.br                              ║
 ║  🤝  Aberto para: trabalho, projetos e parcerias     ║
 ╚══════════════════════════════════════════════════════╝
